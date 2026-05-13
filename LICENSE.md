@@ -1,4 +1,4 @@
-# 
+# Enhance Filmora for macOS with rare Filmora for macOS Effect | reverb + chromatic-aberration-fix, the #1 effect. Includes reverb and chromatic-aberration-fix for a smoother and
 
 
 
